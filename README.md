@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **DSA, AI, ML, DL**
 
-- 📫 How to reach me **amansinghofficial0909@gmail.com**
+- 📫 How to reach me **alexxx0908.0809@gmail.com**
 
 - ⚡ Fun fact **I am Ethical Hacker too.**
 
